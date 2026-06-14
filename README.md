@@ -16,4 +16,4 @@ I would like to become a more technology and deployment focussed data profession
 
 ## My linked-in :)
 
-Here is a [link](www.linkedin.com/in/ruth-shangobiyi-4194b71b4 "link to my linkedin")
+Here is a [link to my LinkedIn page](www.linkedin.com/in/ruth-shangobiyi-4194b71b4)
